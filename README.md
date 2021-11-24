@@ -1,7 +1,7 @@
 Presentation:
 
 
-👋] Hi, im Diciotto.
+👋] Hi, im Diciotto, this page is more about minecraft than anything else.
 
 ❔] I was born in 30/10/200*.
 
